@@ -22,22 +22,17 @@ escrupuloso seguidor de la consagrada ley de la oferta y la demanda:
 este modo infringí la ley, en tal caso mis clientes son tan culpables
 como yo...”[^2]
 
-Y era a eso a lo que dedicaba sus esfuerzos el buenazo de Al, a los negocios. Había montado una rentable industria dedicada a la fabricación y distribución ilegal de alcohol y también tenía intereses en el negocio
-de la prostitución, en el negocio de los juegos de azar y el negocio de
-la extorsión, sectores todos ellos muy lucrativos y que generaban un número importante de puestos de trabajo:
+Y era a eso a lo que dedicaba sus esfuerzos el buenazo de Al, a los negocios. Había montado una rentable industria dedicada a la fabricación y distribución ilegal de alcohol y también tenía intereses en el negocio de la prostitución, en el negocio de los juegos de azar y el negocio de la extorsión, sectores todos ellos muy lucrativos y que generaban un número importante de puestos de trabajo:
 
-“Con la ayuda de su especialista en finanzas, Jake “Dedos
-Grasientos” Guzik[^3], racionalizó con todo esmero la administración de su
-razón social. Introdujo métodos modernos de organización e instaló
-flamantes máquinas contabilizadoras. Veinticinco contables trabajaban
-para la empresa, la cual nada tenía que envidiar a las compañías mejor
-dirigidas del mundo de los negocios legales.”[^4]
+“Con la ayuda de su especialista en finanzas, Jake “Dedos Grasientos” Guzik[^3], racionalizó con todo esmero la administración de su razón social. Introdujo métodos modernos de organización e instaló flamantes máquinas contabilizadoras. Veinticinco contables trabajaban para la empresa, la cual nada tenía que envidiar a las compañías mejor dirigidas del mundo de los negocios legales.”[^4]
 
 Según Enzensberger las innovaciones que aportó el crimen organizado de
 Chicago al modelo capitalista clásico y que lo situaba en los inicios
-del ultracapitalismo contemporáneo se caracterizaban por combinar dos
+del ultracapitalismo contemporáneo, se caracterizaban por combinar dos
 elementos aparentemente antagónicos pero que en la práctica se revelaron
 tremendamente eficaces.
+
+(Cuáles son esos elementos?!)
 
 La aportación de Capone a la economía capitalista consistió en la
 combinación de los códigos ideológicos más arcaicos, pre-modernos,
@@ -55,7 +50,7 @@ situación del país. La afronto. Eso es todo.”
 
 Como el buen patriota que sinceramente se sentía, Capone creía con todo
 su corazón en el libre juego de la oferta y la demanda y se tomaba
-totalmente en serio la máxima de lo que es bueno para mi y mis negocios,
+totalmente en serio la máxima de que lo que es bueno para mi y mis negocios,
 es bueno para América.[^5]
 
 La guerra de bandas que sembró Chicago de cadáveres en esencia no era
@@ -63,7 +58,7 @@ más que llevar hasta sus últimas consecuencias la lógica de fuerzas
 establecida por el mercado. Nunca se trataba de una cuestión personal,
 sólo era una cuestión de negocios.
 
-“La historia de la guerra de gángsters es tan instructiva y tan aburrida
+>“La historia de la guerra de gángsters es tan instructiva y tan aburrida
 como la del ramo de la alimentación en cualquier ciudad de provincias
 (…) el que vayan siempre con ametralladoras en lugar de letras de cambio
 no acredita su estatura.”[^6]
@@ -87,7 +82,7 @@ Bootleggers* (Los contrabandistas). Durante el proceso de investigación
 interrogó a cientos de ciudadanos, entre ellos a un profesor de la
 Universidad de Chicago que no dudo en expresar abiertamente su opinión:
 
-“Capone fue uno de los bienhechores de nuestra ciudad. Eso no lo digo yo
+>“Capone fue uno de los bienhechores de nuestra ciudad. Eso no lo digo yo
 por admiración hacia él, me limito a señalarlo. Solo es posible el
 crimen organizado en el caso que la sociedad lo pida. La empresa de
 Capone coincidía con los conceptos morales y legales de la población.
@@ -103,16 +98,16 @@ Un buen ejemplo de las consecuencias que tuvo la aplicación de este tipo
 de praxis en la vida cotidiana de los ciudadanos en el Chicago de
 aquellos años la ofreció el barrio Cicero.
 
-“Cicero era el típico barrio residencial de clase media situado en los
+>“Cicero era el típico barrio residencial de clase media situado en los
 suburbios de Chicago que tuvo la fortuna de ser elegido por los mafiosos
 como idóneo para ampliar su campo de negocios. El único problema era que
 los vecinos se negaban a permitir que su barrio se convirtiera en un
 antro desvalorizado y no se mostraban dispuestos a cooperar.
 
-Mediante la abierta utilización de la intimidación y la violencia los
+Mediante la abierta utilización de la intimidación y la violencia, los
 esbirros de Capone consiguieron que el consejo municipal que ellos
-controlaban fuera reelegido por amplia mayoría. Al cabo de un año
-Cicero, el barrio residencial de clase media “ofrecía el aspecto de una
+controlaban fuera reelegido por amplia mayoría. Al cabo de un año,
+Cicero, el barrio residencial de clase media, “ofrecía el aspecto de una
 ciudad de buscadores de oro: anuncios luminosos, tabernas, clubs de
 juego, tenderetes, carreras de galgos, clubs nocturnos”.[^9]
 
@@ -120,62 +115,49 @@ El nuevo Cicero aportaba a la mafia unos ingresos semanales de cien mil
 dólares. Obviamente sólo se trataba de una cuestión de negocios.
 
 Con posterioridad se abriría una investigación judicial sobre los hechos
-qué... no llegó a ningún resultado.
+que no llegó a ningún resultado.
 
 Que el neoliberalismo rampante que se ha impuesto a todo el mundo en los
 últimos años tuviera sus orígenes en la Escuela Económica de Chicago
 quizás rebase el ámbito de lo anecdótico, al fin y al cabo se trataba
 tan sólo de teorizar sobre cómo aplicar un método de saqueo a escala
-global que ya había demostrado su eficacia con anterioridad a nivel
-local en esta ciudad.
+global que ya había demostrado previamente su eficacia a nivel local.
 
 Para que éste modelo de capitalismo florezca son indispensable las
 denominadas *relaciones externas,* es decir, la estrecha relación entre
 políticos, instituciones y gángsters económicos. Giancarlo Caselli, el
-fiscal antimafia italiano señaló hasta que punto la delincuencia
-organizada necesita entrelazar intereses con elementos de la política,
-de la economía, de las instituciones y de la información. Los mafiosos
-necesitan contables, operadores bancarios, administradores, abogados,
-jueces y políticos para que sus negocios puedan prosperar sin
-sobresaltos. Elon Musk, fundador de la multinacional Tesla, aclaraba el
-método de funcionamiento institucionalizado en los Estados Unido:
+fiscal antimafia italiano, señaló hasta que punto la delincuencia
+organizada necesita entrelazar intereses con (elementos)(equivalente!!!!) de la política, de la economía, de las instituciones y de la información. Los mafiosos
+necesitan contables, operadores bancarios, administradores, abogados, jueces y políticos para que sus negocios puedan prosperar sin sobresaltos. Elon Musk, fundador de la multinacional Tesla, aclaraba el método de funcionamiento institucionalizado en los Estados Unidos de América:
 
-“En América se puede sobornar legalmente a los políticos, se le llama
+>“En América se puede sobornar legalmente a los políticos, se le llama
 contribución a la campaña electoral.”[^10]
 
-En Europa se llaman préstamos bancarios a los partidos para la
-financiación de las campañas electorales y puertas giratorias.
+[Siguiendo ésta lógica], podríamos afirmar que En Europa se [les] llaman préstamos bancarios a los partidos políticos para la financiación de las campañas electorales [y puertas giratorias].
 
 Pero quizá haya sido el economista francés Alain Minc, empresario de
 éxito y ex-asesor de Nicolas Sarkozy, quien mejor ha sabido describir la
 correlación directa entre el triunfo de la ideología del mercado y la
-proliferación de las zonas que escapan al control democrático, las zonas
+proliferación de las zonas que escapan al control democrático, [las zonas
 donde la frontera entre legalidad e ilegalidad se diluye y las cosas
-suceden sin que se sepa que están sucediendo. Él la denominada la *zona
+suceden sin que se sepa que están sucediendo](esto ya está implicito en lo que viene abajo). Él la denominada la *zona
 gris*:
 
-“Lo gris avanza en todas partes, en los territorios en las sociedades y
+>“Lo gris avanza en todas partes, en los territorios en las sociedades y
 en las realidades virtuales; por ejemplo en el mundo financiero,
-estableciendo unas distancias cada vez más tenues entre lo prohibido y
-lo permitido, entre lo moral lo inmoral, entre la autoridad legitima y
+estableciendo distancias cada vez más tenues entre lo prohibido y
+lo permitido, entre lo moral y lo inmoral, entre la autoridad legitima y
 los poderes ilegales, entre lo oficial y lo oficioso.”[^11]
 
 La complejidad técnica de los instrumentos financieros, la agilidad y
 opacidad de las operaciones bancarias que traspasan con extrema
 facilidad los límites políticos y jurídicos de las naciones hasta
-alcanzar la tenebrosidad total de los paraísos fiscales, junto a la
+alcanzar [la tenebrosidad total] de los paraísos fiscales, junto a la
 complicidad entre el poder financiero, el poder político y el mediático,
 hacen que los dueños fácticos de los mercados sean finalmente quienes
 controlan las democracias.[^12]
 
-La desregulación económica o “liberalización financiera” predicada por
-los neoliberales ha abierto las puertas a todos los gángsters del
-planeta para que puedan actuar impunemente en la zona gris de la
-corrupción. Los *neocons* que asaltan los bancos desde dentro
-apropiándose impunemente de cantidades obscenas de dinero no llevan
-pistola. No la necesitan. La táctica es moverse en la zona gris donde el
-contorno entre lo legal e ilegal es solo una sombra. Cuentan con la
-complicidad de las castas políticas que actúan como sus garantes
+La desregulación económica o “liberalización financiera” predicada por los neoliberales ha abierto las puertas a todos los gángsters del planeta para que puedan actuar impunemente en la zona gris de la corrupción. Los *neocons* que asaltan los bancos desde dentro apropiándose impunemente de cantidades obscenas de dinero no llevan pistola. No la necesitan. La táctica es moverse en la zona gris donde el contorno entre lo legal e ilegal es solo una sombra. Cuentan con la complicidad de las castas políticas que actúan como sus garantes
 dictando leyes a la medida de sus crímenes[^13] y con los recursos
 necesarios para penetrar en las economías nacionales e influir
 directamente sobre los procesos políticos. Han cambiado la metralleta
@@ -8120,7 +8102,7 @@ hacerlo algunos ineluctables cómics, con un irresoluto e intrigante…
 [^2]: Hans Magnus Enzensberger. *La Balada de Al Capone. Mafia y
     capitalismo*. Errata Naturae. Madrid 2009.
 
-[^3]: Jacob Guzik, apodado el dedo grasiento por su función de untar a
+[^3]: Jacob Guzik, apodado el *dedos grasientos* por su función de untar a
     políticos, jueces y policías, era el encargado de la gestión de las
     fianzas de Capone y presumia de no haber llevado jamás un arma.
 
