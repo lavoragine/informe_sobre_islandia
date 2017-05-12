@@ -4,33 +4,30 @@
 Prefacio
 --------
 
-1964 ingresará a la historia por ser el año en que la minifalda se apoderó de todas las miradas, los Beatles consiguieron que  el mundo entero tarareara *I Want to Hold Your Hand,* y ambos fenómenos cristalizaran en símbolos de la revolución social y cultural que se gestaba y que no tardaría en dar origen a la sociedad de bienestar. En este alegre contexto, apareció en las librerías un pequeño e inquietante librito titulado *Chicago-Ballade. Modell einer terroristchen Gesellschuft* (*La balada de Al Capone. Modelo de una sociedad terrorista*) escrito por el ensayista alemán Hans Magnus Enzensberger, y qué, como era de prever, pasó bastante desapercibido[^1].
+1964 ingresará a la historia por ser el año en que la minifalda se apoderó de todas las miradas, los Beatles consiguieron que  el mundo entero tarareara *I Want to Hold Your Hand,* y ambos fenómenos cristalizaron en símbolos de la revolución social y cultural que se gestaba y que no tardaría en dar origen a la sociedad de bienestar. En este alegre contexto, apareció en las librerías un pequeño e inquietante librito titulado *Chicago-Ballade. Modell einer terroristchen Gesellschuft* (*La balada de Al Capone. Modelo de una sociedad terrorista*) escrito por el ensayista alemán Hans Magnus Enzensberger, y qué, como era de prever, pasó bastante desapercibido[^1].
 
 Enzensberger, en un texto de apenas sesenta páginas, elaboraba un lúcido
 análisis del mito de Al Capone y de los orígenes de la mafia en el
 Chicago de los años de la prohibición, para mostrar como Al Capone y sus
-compinches habían asentado las bases empíricas del capitalismo
+compinches habían sentado las bases empíricas del capitalismo
 contemporáneo. El libro revelaba hasta que punto el triunfo del crimen
-organizado al contrario de lo que comúnmente se cree, no se debe a una
+organizado, al contrario de lo que comúnmente cree, no se debe a una
 vulneración de las normas del orden social establecido, sino a una
 “incondicional adhesión a sus premisas”.
 
 Al Capone se veía a si mismo “como un hombre de negocios y nada más”. Un
 escrupuloso seguidor de la consagrada ley de la oferta y la demanda:
 
-“Gané dinero satisfaciendo las necesidades de la nación. Si al obrar de
+>“Gané dinero satisfaciendo las necesidades de la nación. Si al obrar de
 este modo infringí la ley, en tal caso mis clientes son tan culpables
 como yo...”[^2]
 
-Y a eso dedicaba básicamente sus esfuerzos el buenazo de Al, a los
-negocios. Había montado una rentable industria dedicada a la fabricación
-y distribución ilegal de alcohol y también tenía intereses en el negocio
+Y era a eso a lo que dedicaba sus esfuerzos el buenazo de Al, a los negocios. Había montado una rentable industria dedicada a la fabricación y distribución ilegal de alcohol y también tenía intereses en el negocio
 de la prostitución, en el negocio de los juegos de azar y el negocio de
-la extorsión, sectores todos ellos muy lucrativos y que generaban muchos
-puestos de trabajo:
+la extorsión, sectores todos ellos muy lucrativos y que generaban un número importante de puestos de trabajo:
 
-“Con la ayuda de su especialista en finanzas Guzik “Dedos
-Grasientos”[^3] , racionalizó con todo esmero la administración de su
+“Con la ayuda de su especialista en finanzas, Jake “Dedos
+Grasientos” Guzik[^3], racionalizó con todo esmero la administración de su
 razón social. Introdujo métodos modernos de organización e instaló
 flamantes máquinas contabilizadoras. Veinticinco contables trabajaban
 para la empresa, la cual nada tenía que envidiar a las compañías mejor
